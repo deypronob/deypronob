@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @deypronob
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning ML
+- 💞️ I’m looking to collaborate on AI
+- 📫 How to reach me : No rules
+- 😄 Pronouns: Pro Nob
+- ⚡ Fun fact: I am not a serious person
